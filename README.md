@@ -1,1 +1,1 @@
-https://sergey-life.github.io/Sergey-Kharchenko/
+ https://sergey-life.github.io/Sergey_Kharchenko_summary/.
